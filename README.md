@@ -1,4 +1,11 @@
-<img src="/src/assets/logo.png" alt="uwu" width="200"/>
+
+# THIS PROJECT WAS DISCONTINUED BEFORE IT COULD BE STARTED IN FAVOR OF MY OWN VERSION OF THIS, **CLUE DADDY**
+
+FOLLOW US HERE:
+
+https://github.com/rootacc3ss/clue-daddy
+
+THANKS!
 
 # Cheating Daddy
 
